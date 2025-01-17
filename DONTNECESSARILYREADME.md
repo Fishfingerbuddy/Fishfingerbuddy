@@ -1,9 +1,9 @@
 - 👋 Hi, I’m @Fishfingerbuddy
-- 👀 I’m interested in uhhhhhhhhh maths
-- 🌱 I’m currently learning how to use github
-- 💞️ I’m looking to collaborate on nothing (social anxiety lol)
+- 👀 I’m interested in: uhhhhhhhhh maths
+- 🌱 I’m currently learning: how to use github
+- 💞️ I’m looking to collaborate on: nothing atm
 - 📫 How to reach me: please dont
-- 😄 Pronouns: guess them (if you misgender me i will end you) (no pressure)
+- 😄 Pronouns: what???/huh???
 - ⚡ Fun fact: you can make cheese from clown milk
 
 <!---
